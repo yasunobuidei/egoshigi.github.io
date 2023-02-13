@@ -1,0 +1,1 @@
+# egoshigi.github.io
